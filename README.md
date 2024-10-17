@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/mahjabeen-akhtar-8395b7248/**
 
-- 📄 Know about my experiences [file:///C:/Users/MAHJABEEN%20AKHTAR/OneDrive/Desktop/internny/updated%20resume.pdf](file:///C:/Users/MAHJABEEN%20AKHTAR/OneDrive/Desktop/internny/updated%20resume.pdf)
+- 📄 Know about my experiences [file:///C:/Users/MAHJABEEN%20AKHTAR/OneDrive/Desktop/doc/Updated_resume.pdf](file:///C:/Users/MAHJABEEN%20AKHTAR/OneDrive/Desktop/doc/Updated_resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
